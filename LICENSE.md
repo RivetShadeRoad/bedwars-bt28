@@ -1,4 +1,4 @@
-
+bedwars Script best offers the most advanced bedwars Script, with no clip and invisibility. Perfect for dominating any match.
 
 
 
